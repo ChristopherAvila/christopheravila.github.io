@@ -1,1 +1,1 @@
-# privacy-politics-Appointsy
+# Privacy-Politics-Appointsy
